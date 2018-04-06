@@ -1,0 +1,1 @@
+# clipboard.----Go-to-www.addthis.com-dashboard-to-customize-your-tools----script-type-text-jav
